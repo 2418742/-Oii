@@ -4,6 +4,6 @@
 - I'm currently learning a HTML, CSS, Javascript, SQL, Git
 - I'm Looking for help with...
 - Ask me about...
-- How to reach me: @RodrigoHenrique
-- Pronouns:
+- How to reach me: rh260839@gmail.com
+ -  Pronouns:
 - Fun Fact:
